@@ -10,3 +10,5 @@
 
 ## Kesan Pesan Cluster [19] Sejauh Ini 
 [kesan dan pesan buat cluster saya lebih solid lagi karena kita satu angkatan harus solid sampai lulus agar menambah relasi kita]
+## Harapan Kuliah 
+[Harapan kuliah di Filkom ub menjadikan saya menjadi pribadi yang lebih baik dan bisa bermanfaat bagi orang orang di sekitar saya dan bermanfaat bagi negara dan bangsa]
